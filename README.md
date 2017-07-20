@@ -1,2 +1,1 @@
-# POS-Usability
-Making the POS great again
+STOP OPENING NEW TABS K THX
